@@ -2,15 +2,15 @@
 
 <blockquote>
 
-> ## <h1>目录</h1>
+> ## 目录
 > ### 1. [前言](#前言)
-> ### 2. [论坛/源码](#论坛/源码)
+> ### 2. [论坛 源码](#论坛 源码)
 > ### 3. [资源下载](#资源下载)
-> ### 4. [学习/教程](#学习/教程)
+> ### 4. [学习 教程](#学习 教程)
 > ### 5. [娱乐](#娱乐)
 > ### 6. [工具](#工具)
 >> #### 6.1 [文件传输](#文件传输)
-> ### 7. [导航页（工具集）](#导航页（工具集）)
+> ### 7. [导航页 工具集](#导航页 工具集)
 > ### 8. [视频](#视频)
 > ### 9. [音乐](#音乐)
 > ### 10. [设计](#设计)
@@ -18,9 +18,9 @@
 > ### 12. [图片](#图片)
 >> #### 12.1 [图床](#图床)
 > ### 13. [群员分享](#群员分享)
-> ### 14. [未整理（Preview）](#未整理（Preview）)
+> ### 14. [未整理 Preview](#未整理Preview)
 
-</blockquote>
+
 
 <hr>
 
@@ -35,8 +35,9 @@
 <strong>只在软天空平台发布www.ruansky.com</strong>
 
 <hr>
+## 论坛 源码
 
-<h2>论坛/源码</h2>最知名的同性交友平台（划去）最知名的源码交流/托管平台
+最知名的同性交友平台（划去）最知名的源码交流/托管平台
 
 The world’s leading software development platform · GitHub
 
@@ -63,8 +64,9 @@ Android Police - Android news, reviews, apps, games, phones, tablets
 https://www.androidpolice.com/
 
 <hr>
+<h2>资源下载</h2>
 
-<h2>资源下载</h2>推荐几个资源网站
+推荐几个资源网站
 
 全网更新最快
 
@@ -140,7 +142,7 @@ http://www.tvgame.org/
 
 <hr>
 
-## 学习/教程
+## 学习 教程
 
 TED（最优质的演讲）：https://www.ted.com/
 
@@ -255,6 +257,10 @@ http://weavesilk.com/
 星系观察：
 
 https://stellarium-web.org/
+
+实时景点：
+
+https://www.skylinewebcams.com/
 
 煎蛋：
 
@@ -576,7 +582,7 @@ https://v3-beta.6pan.cn/
 
 <hr>
 
-## 导航页（工具集）
+## 导航页 工具集
 
 NiceTool.net 好工具网：
 
@@ -723,8 +729,6 @@ https://www.guipianzhijia.com/
 <hr>
 
 ## 音乐
-
-http://music.sonimei.cn
 
 http://music.sonimei.cn/
 
@@ -1408,7 +1412,7 @@ http://waifu2x.udp.jp/
 
 <hr>
 
-## 未整理（Preview）
+## 未整理 Preview
 
 oVectordash
 
@@ -1918,14 +1922,6 @@ https://app.fxwapp.com/html/index.html?secret=1MagzcNgx0JQUg&amp;forceOutSide=tr
 
 https://m.huabaike.com/shihua
 
-游戏登录
-
-https://passport.1758.com/play/passport/login?wyOpenAppId=107686&amp;loginMode=10&amp;appKey=43c4c33cf2347a25cf04447773e06322&amp;chn=soutu&amp;redirectUrl=http%3A%2F%2Fwx.1758.com%2Fplay%2Flogin%2FfloginV4%3FappKey%3D43c4c33cf2347a25cf04447773e06322%26chn%3Dsoutu%26forceOutSide%3Dtrue%26&amp;
-
-游戏登录
-
-https://passport.1758.com/play/passport/login?wyOpenAppId=107686&amp;loginMode=10&amp;appKey=375fa48e2842a75b180f88d31cda36a8&amp;chn=soutu&amp;redirectUrl=http%3A%2F%2Fwx.1758.com%2Fplay%2Flogin%2FfloginV4%3FappKey%3D375fa48e2842a75b180f88d31cda36a8%26chn%3Dsoutu%26forceOutSide%3Dtrue%26&amp;
-
 AI Gahaku : A masterpiece from your photos.
 
 https://ai-art.tokyo/en/#/
@@ -2026,14 +2022,13 @@ tineye
 
 https://tineye.com/
 
-danbooru.me
-
-https://zh.wix.com/
+http://danbooru.me
 
 建站平台，类似WordPress
+
+https://zh.wix.com/
 
 云展网 - PDF 文档一键转换在线 3D 翻页书
 
 https://www.yunzhan365.com/
-
 
