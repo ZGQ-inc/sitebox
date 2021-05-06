@@ -1,6 +1,6 @@
 # 网站分享|SiteBox
 
-![](https://github.com/ZGQ-inc/sitebox/blob/6ddc32e3ef1ac3e6e6df87b75125007428c43e2c/cover%233.jpg)
+![cover_3.jpg](https://i.loli.net/2021/05/07/9vEHXq378OlUFD6.jpg)
 
 
 > ## 目录
