@@ -4,9 +4,11 @@
 
 ## 前言
 
-有些私密网站需要进群获取请注意
+开始整理浏览器收藏夹了，能整理多少是多少，这个寒假也不太有空，我尽力吧
 
-还有些网站需要梯子请留意
+有些网站需要进群获取请注意
+
+还有些网站需要梯子请注意
 
 **只在软天空平台发布www.ruansky.com**
 
@@ -2031,3 +2033,192 @@ https://zh.wix.com/
 
 https://www.yunzhan365.com/
 
+
+
+
+
+
+
+www.yongcun.top
+现实军工具箱：http://tool.uixsj.cn/ 
+
+爱资料工具:https://www.toolnb.com/ 
+
+smallpdf：https://smallpdf.com/cn 
+
+mikutools：https://miku.tools/ 
+
+鸠摩搜索：https://www.jiumodiary.com/ 
+
+\1. 视频片头动画模板 https://panzoid.com/
+2.在线抠图 https://www.remove.bg/
+3.字体下载 https://www.zitijia.com/
+\4. p站 （二次元插画网站） https://www.pixiv.net/
+5.论文下载 https://www.cn-ki.net/
+6.文档格式在线转换 https://smallpdf.com/
+7.录屏投屏 http://web.airdroid.com/
+8.各大网站热榜 https://tophub.today/
+9.超清图片壁纸 https://www.pexels.com/
+10.找网站的网站 http://www.addog.vip/​ 
+
+https://orangex4.github.io/warma.html 
+
+2.https://neave.tv/
+3.https://clash.me/
+4.https://cloud.tencent.com/act/event/ci_demo
+5.https://paintschainer.preferred.tech/
+6.https://www.yyyyyyy.info/ 
+
+UnlockAPK - Latest android Updates and More
+https://unlockapk.com/
+站长之家移动版-站长资讯-我们致力于为中文网站提供动力！
+https://m.chinaz.com/
+幕布精选社区
+https://mubu.com/mobile/explore
+
+
+1.低端影视：http://ddrk.me 
+
+2.五号站：http://www.wuhaozhan.net 
+
+4.BT电影天堂：http://www.btbtdy.me 
+
+5.在线之家：https://www.zxzjs.com 
+
+6.两个BT：http://www.bttwo.com 
+
+8.新版6v影院：https://www.66s.cc 
+
+10.独播库：https://www.duboku.net 
+
+11.哗嘀影视：https://www.bde4.com 
+
+16.看看屋：https://www.kankanwu.com 
+
+18.迅播影院：http://www.22tu.cc 
+
+19.酷绘视频：http://www.kuhuiv.com 
+
+20.我的电影网：http://www.wodedy.net 
+
+22.七七看片：https://www.77kpp.com/ 
+
+23.草民电影：https://www.cmdy5.com/ 
+
+24.私人官网：http://www.aishang118.cn/ 
+
+25.电影盒子：http://www.tv5box.com/ 
+
+26.全能影视：http://www.qnvod.net/ 
+
+28.94神马电影网：http://www.9rmb.com/ 
+
+29.好恐怖：http://www.hkb123.com/ 
+
+31.影猫：http://www.mvcat.com/ 
+
+32.BT猫：https://www.btmao.cc/ 
+
+35.西瓜影院：https://www.xigua2222.com/ 
+
+37.片库网：https://www.pianku.me/ 
+
+38.无双影视：https://53ys.cc/ 
+
+39.80s手机电影网：http://www.8080s.net/ 
+
+40.西瓜电影：https://www.xigua110.com/ 
+
+41.人人影视：http://www.yyetss.com/ 
+
+46.放映影院：https://www.t90dyy.tv/ 
+
+47.速影TV：https://suyingtv.com/ 
+
+48.嘀哆咪影视：https://www.haiduomi.cc/ 
+
+49.优片网：http://www.iupian.com/ 
+
+50.黑米影院：https://www.tv432.com/ 
+
+51.且听风吟：http://www.qtfy7.com/ 
+
+53.嘀哩哩：http://www.dililitv.com/ 
+
+54.云播TV：https://www.yunbtv.com/ 
+
+55.田鸡影院：http://www.tianjiyy123.com/ 
+
+56.奈非影视：https://www.nfmovies.com/ 
+
+58.全集网：http://quanji456.com/ 
+
+60.五杀电影院：https://www.lol5s.com/ 
+
+61.蓝马影视：https://www.lanmays.com/ 
+
+62.奇葩影视：https://www.qpvod.com/ 
+
+68.美鱼剧场：http://www.hailiys.com/ 
+
+69.吼吼：http://hoho.tv/ 
+
+70.酷云影视：https://kuyun.tv/ 
+
+71.想看剧：https://www.xiangkanju.cc/ 
+
+75.好吧：http://hao8tv.com/ 
+
+78.优乐电影网：http://www.youlebe.com/ 
+
+81.七七电视：https://www.77ds.vip/ 
+
+82.我乐电影：http://www.56dy.com/ 
+
+83.钉子电影：http://www.dingziyc.com/ 
+
+84.蓝鲸电影：https://www.ljmovie.com/ 
+
+85.葡萄影视：https://www.putaoys.com/ 
+
+86.太初电影：https://www.tcmove.com/ 
+
+87.完美看看：https://www.wanmeikk.me/ 
+
+90.Gimy TV剧迷：https://gimy.tv/ 
+
+91.NO视频：http://www.novipnoad.com/ 
+
+93.91美剧：https://91mjw.com/ 
+
+94.美剧鸟：http://www.meijuniao.com/ 
+
+95.爱美剧：https://www.meiju.net/ 
+
+96.天天看美剧：http://www.ttkmj.tv/ 
+
+97.日剧TV：https://www.rijutv.com/ 
+
+98.韩剧集网：https://www.juji.tv/ 
+
+100.韩剧TV：https://www.hanjutv.com/ 
+
+101.Zzzfun：http://www.zzzfun.com/ 
+
+102.妮可动漫：http://www.nicotv.me/ 
+
+103.吐槽弹幕网：http://www.tucao.one/ 
+
+104.动漫岛：http://www.dmd8.com/ 
+
+105.碟影视界：http://www.952780.com/ 
+
+106.皮皮影视网：https://www.taiks.com/ 
+
+107.ADC电影网：https://www.adcmove.com/ 
+
+109.青鸟影视：https://www.qingniao.me/ 
+
+112.美剧天堂：https://www.meijutt.tv/ 
+
+\113. lol电影天堂：https://www.loldytt.com/
