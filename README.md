@@ -10,6 +10,9 @@
 
 **只在软天空平台发布www.ruansky.com**
 
+> ## 我的资源群
+>https://zgq-inc.github.io/transit-groups/
+
 <hr>
 
 > ## 目录
