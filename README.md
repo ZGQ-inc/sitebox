@@ -1,6 +1,6 @@
 # 网站分享|SiteBox
 
-![cover#3_16-9_60%.jpg](https://i.loli.net/2021/05/14/U5mqsthO4Dl1G37.jpg)
+![cover](https://i.loli.net/2021/05/14/U5mqsthO4Dl1G37.jpg)
 
 ## 前言
 
