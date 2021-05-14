@@ -1,7 +1,6 @@
 # 网站分享|SiteBox
 
-<a href="https://sm.ms/image/U5mqsthO4Dl1G37" target="_blank"><img src="https://i.loli.net/2021/05/14/U5mqsthO4Dl1G37.jpg" /></a>
-> ![cover](https://i.loli.net/2021/05/14/U5mqsthO4Dl1G37.jpg)
+[![M8f1T.th.jpg](https://s3.jpg.cm/2021/05/14/M8f1T.th.jpg)](https://imagelol.com/image/M8f1T)
 
 ## 前言
 
