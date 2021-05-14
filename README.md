@@ -1,5 +1,6 @@
 # 网站分享|SiteBox
-<img src="https://i.loli.net/2021/05/14/OcHKRwVfd7gDkpP.jpg" alt="cover_3.jpg" style="zoom:25%;" />
+
+![cover#3_16-9_60%.jpg](https://i.loli.net/2021/05/14/U5mqsthO4Dl1G37.jpg)
 
 ## 前言
 
