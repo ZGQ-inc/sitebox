@@ -1,6 +1,6 @@
 # 网站分享|SiteBox
 
-[![M8f1T.th.jpg](https://s3.jpg.cm/2021/05/14/M8f1T.th.jpg)](https://imagelol.com/image/M8f1T)
+![M8f1T.jpg](https://s3.jpg.cm/2021/05/14/M8f1T.jpg)
 
 ## 前言
 
