@@ -2284,3 +2284,12 @@ https://www.logaster.cn/
 https://tsundora.com/
 Free Icons and Icon packs | +500,000 icons to download - Findicons.com
 https://findicons.com/
+
+SoundCloud - Hear the world’s sounds
+https://m.soundcloud.com/
+Free Stock Music for Your YouTube Videos or Multimedia Projects - 100% Free
+https://www.free-stock-music.com/
+Envato - Top digital assets and services
+https://envato.com/
+Download The Best >>Free After Effects Templates<< - Aedownload.com
+https://aedownload.com/
