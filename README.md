@@ -1,5 +1,6 @@
 # 网站分享|SiteBox
 
+<a href="https://sm.ms/image/U5mqsthO4Dl1G37" target="_blank"><img src="https://i.loli.net/2021/05/14/U5mqsthO4Dl1G37.jpg" /></a>
 > ![cover](https://i.loli.net/2021/05/14/U5mqsthO4Dl1G37.jpg)
 
 ## 前言
