@@ -2293,3 +2293,7 @@ Envato - Top digital assets and services
 https://envato.com/
 Download The Best >>Free After Effects Templates<< - Aedownload.com
 https://aedownload.com/
+
+
+能不能好好说话？ 缩写查询
+https://lab.magiconch.com/nbnhhsh/
