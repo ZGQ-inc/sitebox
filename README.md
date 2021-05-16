@@ -2297,3 +2297,165 @@ https://aedownload.com/
 
 能不能好好说话？ 缩写查询
 https://lab.magiconch.com/nbnhhsh/
+
+
+小马盘
+https://www.xiaomapan.com
+超能搜
+https://www.chaonengsou.com/?from=dalipan
+万网搜
+https://www.wanwangsou.com/?from=dalipan
+小马盘-资源排行
+https://www.xiaomapan.com/rank
+去转盘
+https://www.quzhuanpan.com/
+盘搜
+http://www.pansou.com/
+网盘搜索神器
+http://pan.muyi.so/
+云搜
+http://www.daysou.com/
+搜百度盘
+https://www.sobaidupan.com/
+搜盘网
+http://www.soupan.info/
+百度网盘之家
+https://wowenda.com/
+小可搜搜
+https://www.xiaokesoso.com/
+云盘助手
+https://yunpanzhushou.com/
+磁力鸟
+https://ciliniao.cn/
+DogeDoge搜索引擎
+www.dogedoge.com 
+秘迹搜索
+https://mijisou.com/ 
+小白盘
+https://www.xiaobaipan.com/
+云盘精灵
+www.yunpanjingling.com 
+虫部落
+www.chongbuluo.com 
+如风搜
+http://www.rufengso.net/ 
+爱扒
+https://www.zyboe.com/
+
+
+www.mcname.com
+免责声明：下列所有链接本人不能保证100%安全，请自己衡量
+1. http://minecraft-mods.org/tag/minecraft-1-7-10-mods/
+2. http://www.9minecraft.net/
+3. https://www.curseforge.com/minecraft/
+4. https://www.minecraftforum.net/forums/mapping-and-modding-java-edition/minecraft-mods
+5. https://mcreator.net/community
+6. http://minecraft-forum.net/
+7. http://www.minecraftmaps.com/popular-maps
+8. https://forum.minecraftuser.jp/index.php
+9. http://www.mc-mod.net/
+10. https://www.blockminecraft.com/
+11. https://minecraftcapes.co.uk/
+12. https://www.minecraftyard.com/
+13. https://www.planetminecraft.com/
+14. https://pcminecraft-mods.com/category/download-minecraft-free/
+15. https://www.moddb.com/games/minecraft/mods
+16. https://www.technicpack.net/modpacks?page=1
+17. https://gamemodding.com/en/minecraft/page/1/
+18. http://minecraftsix.com/
+19. https://bdcraft.net/downloads/
+20. https://mc-mods.org/
+21. http://minecraftmodpacks.net/#
+22. https://openeye.openmods.info/
+23. https://www.pcgamer.com/best-minecraft-mods/
+24. https://www.mcbbs.net/
+25. https://resourcepack.net/
+26. http://file-minecraft.com/
+27. http://www.5minecraft.net/
+28. https://www.minecraftmods.com/
+29. http://minecraft-mods.org/minecraft-mods/
+30. http://mod-minecraft.net/category/minecraft-mods/
+31. https://www.minecraftxl.com/category/minecraft-mods/
+32. http://minecraftmodpacks.net/mods/
+33. https://azminecraft.info/
+34. http://www.miinecraft.org/category/minecraft-mods
+35. http://24hminecraft.com/
+36. http://shadersmods.com/
+37. http://www.liteloader.com/mods
+38. www.minecraftxz.com
+39. www.mcbbs.com
+40. mcpedl.com 
+41. minecraftforum.com
+42. chunkbase.com
+43. upupcivajp.com
+44. https://www.curseforge.com/minecraft/
+45. http://minecraft-mods.com
+46. www.minecraftxz.com
+47. www.mcmap.cc
+48. https://minecraft.curseforge.com
+
+
+
+白嫖王の秘密搬运源头公布！
+
+
+〓破解平台/破解方〓
+网站
+en.androeed.ru
+https://a2zapk.com/
+www.apkfolks.com
+www.nullzerepmods.com 
+www.androidoyun.club
+https://premiumapkfree.com/
+https://apkmody.io/
+油管频道
+https://youtube.com/c/Fasguy 
+https://youtube.com/c/CiberHackerModder 
+https://youtube.com/c/TheMasterKramers
+电报群
+https://t.me/androeed_games
+https://t.me/DownloadMatic
+https://t.me/PremiumApkFree
+https://t.me/Techsrk
+https://t.me/fun_apk
+https://t.me/Apkmos
+https://t.me/funtgdl
+https://t.me/fun_exe
+https://t.me/KirlifOfficial
+https://t.me/yxsspcom
+https://t.me/apkfolkspro
+https://t.me/telefonclub21
+https://t.me/themasterkramers
+https://t.me/appmod_s
+https://t.me/AMRTSOFFICIAL
+
+
+
+
+Samsung Free是三星推出的一款小游戏应用，目前非自家手机无法安装，所以把链接提取出来了 
+
+https://ig.glb.samsung-gamelauncher.com/h5/000005343296 
+
+https://ig.glb.samsung-gamelauncher.com/h5/000005299236 
+
+http://img.samsungapps.com/instantgame/000005293241/index.html 
+
+http://img.samsungapps.com/instantgame/000005293234/index.html 
+
+http://img.samsungapps.com/instantgame/000005343285/index.html 
+
+http://img.samsungapps.com/instantgame/000005330382/index.html 
+
+http://img.samsungapps.com/instantgame/000005299078/index.html 
+
+http://img.samsungapps.com/instantgame/000005299233/index.html 
+
+http://img.samsungapps.com/instantgame/000005299213/index.html 
+
+http://img.samsungapps.com/instantgame/000005420240/index.html 
+
+http://img.samsungapps.com/instantgame/000005343277/index.html 
+
+https://ig.glb.samsung-gamelauncher.com/h5/000005343293 
+
+http://img.samsungapps.com/instantgame/000005354375/index.html
