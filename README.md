@@ -2298,6 +2298,10 @@ https://aedownload.com/
 能不能好好说话？ 缩写查询
 https://lab.magiconch.com/nbnhhsh/
 
+http://lengwuxi.top/
+
+https://qxzy.top/
+
 
 小马盘
 https://www.xiaomapan.com
@@ -2459,3 +2463,5 @@ http://img.samsungapps.com/instantgame/000005343277/index.html
 https://ig.glb.samsung-gamelauncher.com/h5/000005343293 
 
 http://img.samsungapps.com/instantgame/000005354375/index.html
+
+
