@@ -2485,3 +2485,26 @@ http://lengwuxi.top/
 
 https://qxzy.top/
 
+
+IP查询
+https://www.ipaddress.com/
+
+https://ac.yunyoujun.cn/
+本群空调
+
+https://fan.elpsy.cn
+本群风扇
+
+http://tvdang.ddns.net:8000/
+本群电视
+
+https://www.yikm.net/
+本群游戏机
+https://game.chronodivide.com/
+
+game.granbluefantasy.ip
+
+
+https://z-lib.org/
+
+
