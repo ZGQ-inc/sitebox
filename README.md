@@ -2508,3 +2508,9 @@ game.granbluefantasy.ip
 https://z-lib.org/
 
 
+https://ac.yunyoujun.cn/
+空调
+https://fan.elpsy.cn/
+风扇
+http://tvdang.ddns.net:8000/
+电视
