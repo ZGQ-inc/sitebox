@@ -2514,3 +2514,38 @@ https://fan.elpsy.cn/
 风扇
 http://tvdang.ddns.net:8000/
 电视
+
+
+Envato - Top digital assets and services
+https://envato.com/
+Envato Forums
+https://forums.envato.com/
+Download The Best >>Free After Effects Templates<< - Aedownload.com
+https://aedownload.com/
+dev-c.com
+http://dev-c.com/
+高考倒计时
+https://catdog007.icu/HTML/timer/timer2.html
+米坛Wear应用库
+https://wear.bandbbs.cn/
+爱思助手_苹果助手_iPhone刷机工具
+https://m.i4.cn/
+Youtube 下載器-在線視頻下載器 | YT1s.com
+https://yt1s.com/zh-tw
+Eroge Download - English visual novel downloads
+https://erogedownload.com/
+SoulRom— 安卓精品ROM之家
+http://www.soului.com/
+不开VIP - 全网VIP电影免费看！
+https://bukaivip.com/
+Periodic Table 2021 Web
+https://www.periodic-table.tech/#/element-list
+CPU-World: Microprocessor news, benchmarks, information and pictures
+https://www.cpu-world.com/
+Learn English By Listening -
+https://appworld.xyz/
+Bulbapedia, the community-driven Pokémon encyclopedia
+https://m.bulbapedia.bulbagarden.net/wiki/Main_Page
+Bulbagarden : The original Pokémon community
+https://bulbagarden.net/
+
