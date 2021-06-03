@@ -2668,3 +2668,15 @@ https://m.bulbapedia.bulbagarden.net/wiki/Main_Page
 Bulbagarden : The original Pokémon community
 https://bulbagarden.net/
 
+Vimeo | The world's only all-in-one video solution
+https://vimeo.com/
+深渊凝视着你
+http://note.one.rbq.today/xp/
+ink - inkle's narrative scripting language
+https://www.inklestudios.com/ink/
+inkle
+https://www.inklestudios.com/
+Lightshot-Mac和Win平台的截图工具
+https://prnt.sc/
+神凑轻小说文库_神凑小说网
+http://www.shencou.com/
