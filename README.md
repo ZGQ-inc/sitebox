@@ -2680,3 +2680,42 @@ Lightshot-Mac和Win平台的截图工具
 https://prnt.sc/
 神凑轻小说文库_神凑小说网
 http://www.shencou.com/
+
+
+Skidrow & Reloaded Games
+https://www.skidrowreloaded.com/
+LALAL.AI: 100% AI-Powered Vocal and Instrumental Tracks Removal
+https://www.lalal.ai/
+OpenEmu - Multiple Video Game System
+https://openemu.org/
+Z平台
+https://www.zframeworks.com/
+LinuxTV.org - Television with Linux
+https://linuxtv.org/
+Index of /downloads/zbar
+https://linuxtv.org/downloads/zbar/
+Experience the App Store and iTunes Anywhere | fnd
+https://fnd.io/#/
+中国大学MOOC
+https://www.icourse163.org/
+搜多多
+https://duo66.shop/
+爱哔哩(B站视频、音频mp3解析下载站)
+http://www.ibilibili.com/m/
+二次元动漫工具导航-哔哩123
+https://www.bili123.com/
+B站视频BV号转AV号-爱哔哩(B站视频、音频mp3解析下载站)
+http://www.ibilibili.com/bilitools/bvid2avid/
+在线FLV/MP4/SWF转MP3/M4A/WAV工具-爱哔哩(B站视频、音频mp3解析下载站)
+http://www.ibilibili.com/bilitools/video2audio/
+Anime Scene Search Engine - trace.moe
+https://trace.moe/
+SauceNAO Reverse Image Search
+https://saucenao.com/
+能不能好好说话-爱哔哩(B站视频、音频mp3解析下载站)
+http://www.ibilibili.com/bilitools/nbnhhsh/
+MP3剪辑器-爱哔哩(B站视频、音频mp3解析下载站)
+http://www.ibilibili.com/bilitools/audiocutter/
+神奇海螺试验场
+https://lab.magiconch.com/
+
