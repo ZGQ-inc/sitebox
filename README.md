@@ -8,12 +8,16 @@
 
 还有些网站需要梯子请留意
 
-**只在软天空平台发布www.ruansky.com**
+*只在软天空平台发布*
+
+www.ruansky.com
+
+***
 
 > ## 我的资源群
 >https://github.com/ZGQ-inc/transit-groups
 
-<hr>
+***
 
 > ## 目录
 >
@@ -39,7 +43,7 @@
 > ### 13. [群员分享](#群员分享)
 > ### 14. [未整理Preview](#未整理Preview)
 
-<hr>
+***
 
 ## 论坛源码
 
@@ -69,7 +73,7 @@ Android Police - Android news, reviews, apps, games, phones, tablets
 
 https://www.androidpolice.com/
 
-<hr>
+***
 
 ## 资源下载
 
@@ -146,6 +150,8 @@ https://xiaomirom.com/
 PS4游戏分享网tvgame.org
 
 http://www.tvgame.org/
+
+***
 
 ### 百度网盘资源搜索
 
@@ -326,6 +332,8 @@ https://www.aisouziyuan.com/
 http://www.pansoso.com/
 https://www.panhim.com/
 
+***
+
 ### 49个MC资源网
 
 1. http://minecraft-mods.org/tag/minecraft-1-7-10-mods/
@@ -378,6 +386,8 @@ https://www.panhim.com/
 48. https://minecraft.curseforge.com
 49. www.mcname.com
 
+***
+
 ### 国外破解平台
 
 #### 网站
@@ -414,7 +424,7 @@ https://t.me/themasterkramers
 https://t.me/appmod_s
 https://t.me/AMRTSOFFICIAL
 
-<hr>
+***
 
 ## 学习教程
 
@@ -518,7 +528,7 @@ https://virtualyoutuber.fandom.com/wiki/Virtual_YouTuber_Wiki
 
 https://archive.org/
 
-<hr>
+***
 
 ## 娱乐
 
@@ -644,6 +654,8 @@ https://www.fontcopy.com/zh/
 
 https://www.wakatool.com/fancy/text
 
+***
+
 ### SamsungFree小游戏
 
 https://ig.glb.samsung-gamelauncher.com/h5/000005343296 
@@ -672,7 +684,7 @@ https://ig.glb.samsung-gamelauncher.com/h5/000005343293
 
 http://img.samsungapps.com/instantgame/000005354375/index.html
 
-<hr>
+***
 
 ## 工具
 
@@ -832,7 +844,7 @@ https://nizima.com/
 
 https://www.i4.cn/
 
-<hr>
+***
 
 ### 文件传输
 
@@ -880,7 +892,7 @@ https://beakerbrowser.com/
 
 https://v3-beta.6pan.cn/
 
-<hr>
+***
 
 ## 导航页工具集
 
@@ -944,9 +956,13 @@ Miku工具箱
 
 https://tools.miku.ac/
 
-<hr>
+***
 
 ## 视频
+
+不开VIP：
+
+bukaivip.com
 
 电影推荐：
 
@@ -1036,7 +1052,7 @@ https://www.guipianzhijia.com/
 
 https://github.com/ZGQ-inc/sitebox/blob/main/%E5%85%A8%E7%90%83%E7%9B%B4%E6%92%AD%E6%BA%90.txt
 
-<hr>
+***
 
 ## 音乐
 
@@ -1070,7 +1086,7 @@ MYFREEMP3
 
 http://tool.liumingye.cn/music/?page=homePage
 
-<hr>
+***
 
 ## 设计
 
@@ -1132,7 +1148,7 @@ https://dribbble.com/ai
 
 https://www.135editor.com/
 
-<hr>
+***
 
 ## 文档
 
@@ -1226,7 +1242,7 @@ http://ppt.sotary.com/web/wxapp/
 
 https://www.hellofont.cn/home
 
-<hr>
+***
 
 ## 图片
 
@@ -1264,6 +1280,8 @@ https://docsmall.com/
 
 https://www.logosc.cn/so/
 
+***
+
 ### 图床
 
 https://sm.ms/
@@ -1298,7 +1316,7 @@ https://img.gejiba.com/
 
 https://imgur.com/
 
-<hr>
+***
 
 ## 群员分享
 
@@ -1720,7 +1738,7 @@ http://waifu2x.udp.jp/
 
 防疫政策https://i.snssdk.com/feoffline/ugc_activities/html/epidemic-prevention-sftr/index.html?style_id=30044
 
-<hr>
+***
 
 ## 未整理Preview
 
