@@ -1004,7 +1004,13 @@ http://imomoe.jp/
 
 Agefans
 
-http://agefans.net
+https://www.agefans.cc
+
+备用域名：
+https://www.agefans.vip
+https://m.agefans.org
+https://agefans.app
+https://agefans.tw
 
 蛋播星球
 
