@@ -2743,3 +2743,22 @@ http://www.ibilibili.com/bilitools/audiocutter/
 神奇海螺试验场
 https://lab.magiconch.com/
 
+圆云盘
+https://pan.roundcloud.cn/login
+下载专区 | 希沃·seewo
+https://www.seewo.com/index.php/Info/servicesupport/cat_id/47
+Total Control 电脑控制手机-手机多控系统-编程脚本自动化-支持REST API/JS-官网
+http://tc.sigma-rt.com.cn/
+Pi Network
+https://minepi.com/
+奔跑中的奶酪 - 有智，有趣，有爱
+https://www.runningcheese.com/
+图形计算器 - GeoGebra
+https://www.geogebra.org/graphing
+创先泰克教育云
+http://pad.cretech.cn/livecloudceshi/index.html?
+GitBook - Where software teams break knowledge silos.
+https://www.gitbook.com/
+字由-让设计更有价值
+https://www.hellofont.cn/home
+
