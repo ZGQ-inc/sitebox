@@ -2811,3 +2811,22 @@ https://www.hellofont.cn/home
 支持音频在线剪辑
 
 
+浏览器内核版本检测--浏览迷
+https://liulanmi.com/labs/core.html
+App Center
+https://install.appcenter.ms/apps
+小众软件 - 分享免费、小巧、实用、有趣、绿色的软件
+https://www.appinn.com/?9ne09
+下载Android应用程序-下载，恢复，在Uptodown分享
+https://cn.uptodown.com/android
+XFOX丨未知狐的小窝丨
+https://xfox.fun/
+Lakka - The DIY open source retrogaming emulation console
+http://lakka.tv/
+Blogger.com - 创建独一无二的精美博客。轻松简单，且完全免费。
+https://www.blogger.com/about/?bpli=1
+Welcome – WoT (Web of Trust)
+https://www.mywot.com/welcome
+Shields.io: Quality metadata badges for open source projects
+https://shields.io/
+
