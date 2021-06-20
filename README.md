@@ -89,7 +89,7 @@ www.ghxi.com
 
 www.yxssp.com
 
-www.androeed.com
+en.androeed.com
 
 www.apkfolks.com
 
