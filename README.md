@@ -2857,3 +2857,10 @@ http://www.bsh.me/
 Gamepedia
 https://www.gamepedia.com/
 
+日本漫畫_在線漫畫閱讀第一站_mangabz
+http://mangabz.com/
+真不卡影院永久地址发布页，收藏我回家不迷路！
+http://www.zhenbuka.vip/
+Telegraph
+https://telegra.ph/
+
