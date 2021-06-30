@@ -2864,3 +2864,16 @@ http://www.zhenbuka.vip/
 Telegraph
 https://telegra.ph/
 
+
+小空调:     http://6ttt.top/a 
+🌬 小风扇 http://6ttt.top/b 
+⭐迪伽： http://6ttt.top/c 
+电视：      http://6ttt.top/d 
+空调电视:  http://6ttt.top/f 
+🎮小霸王: http://1.6ttt.top
+
+
+岁月小筑随机图片API接口-随机背景图片-随机图片API
+http://img.xjh.me/
+WriteOn – Beautiful handwriting for effective note takers
+https://www.writeon.cool/
