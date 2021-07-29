@@ -1963,3 +1963,5 @@ http://waifu2x.udp.jp/
 
 ## 未整理Preview
 
+已与主文档分离，点击[此处](https://github.com/ZGQ-inc/sitebox/blob/main/%E6%9C%AA%E6%95%B4%E7%90%86.md)跳转
+
