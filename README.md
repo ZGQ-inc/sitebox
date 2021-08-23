@@ -16,8 +16,7 @@ www.ruansky.com
 
 ***
 
-> ## 我的资源群
->https://github.com/ZGQ-inc/transit-groups
+> ## [我的资源群](https://zgq-inc.github.io/transit-groups/)
 
 ***
 
