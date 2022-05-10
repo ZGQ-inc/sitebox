@@ -16,7 +16,7 @@ www.ruansky.com
 
 ***
 
-> ## 项目作者の[**个人主页**](https://zgq-inc.github.io/homepage/)
+> ## 项目作者の[**个人主页**](https://zgq-inc.github.io)
 
 ***
 
