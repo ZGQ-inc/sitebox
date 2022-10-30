@@ -1,6 +1,6 @@
 # 网站分享|SiteBox
 
-![M8f1T.jpg](https://s3.jpg.cm/2021/05/14/M8f1T.jpg)
+![M8f1T.jpg](https://zgq-inc.github.io/sitebox/cover#1.jpg)
 
 ## 前言
 
