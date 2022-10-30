@@ -1,6 +1,6 @@
 # 网站分享|SiteBox
 
-![jpg](https://zgq-inc.github.io/sitebox/cover#1.jpg)
+![cover](https://zgq-inc.github.io/sitebox/cover.jpg)
 
 ## 前言
 
